@@ -1,1 +1,2 @@
 # About-Me-
+# My name is Mollie Schuma and I am a current student at the college of William and Mary. Dedicated student athlete pursuing a Master’s degree in Business Analytics. With an undergraduate degree in Kinesiology, I have a passion for optimizing human performance and well-being. Balancing academic excellence with athletic commitment, I thrive in both the classroom and on the field, constantly seeking opportunities to excel in both areas. 
